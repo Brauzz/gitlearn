@@ -1,4 +1,4 @@
 git is a very good software
-but the cz is very stupid.
+but  cz is very stupid boy.
 
 
